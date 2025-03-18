@@ -6,5 +6,3 @@ My name is **Ryan Truong** and I am a recent UCSD graduate! I am an aspiring sof
 
 [💻LinkedIn](https://www.linkedin.com/in/truong-ryan/)
 
-[💻Instagram](https://www.instagram.com/ryxntruong/)
-
